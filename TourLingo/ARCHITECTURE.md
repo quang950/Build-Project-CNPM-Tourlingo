@@ -1,0 +1,1 @@
+🏗️ Hệ thống hoạt động thế nào
